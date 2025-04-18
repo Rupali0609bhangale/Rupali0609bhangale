@@ -44,8 +44,8 @@
 
 📫 **Let's Connect**
 
-- 💼 [LinkedIn](https://www.linkedin.com/) *(add your link)*
-- 📧 Email: *your-email@example.com*
+- 💼 [LinkedIn](https://www.linkedin.com/in/rupali-n-bhangale/) 
+- 📧 Email: *bhangalerupali06@gmail.com*
 - 💡 Always up for a data chat or collaboration!
 
 ---
